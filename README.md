@@ -1,1 +1,0 @@
-# isandy.github.io
